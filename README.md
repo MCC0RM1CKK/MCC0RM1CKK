@@ -1,9 +1,6 @@
 
 <p align="center">
-<img width="190" height="150" alt="ezgif-2b79dd12085bbd48" src="https://github.com/user-attachments/assets/0c71d377-2627-4e24-9182-2ab7394a07a9" />
+<img width="400" alt="jkhkjh" src="https://github.com/user-attachments/assets/cf95da9e-7ef4-4931-8c81-7935baef05f5" />
 
-<p align="center">
-eu fiquei uns 40 minutos fazendo isso
 
-<p align="center">
-<img width="200" alt="morora" src="https://github.com/user-attachments/assets/0ca562fe-4045-49be-966e-91216846998d" />
+<p align="center"> <a href="https://github.com/kawaiirazorblades">me btw</a>
