@@ -2,7 +2,8 @@
 arte por mim!!!! ^-^
   
 <p align="center">
-<img width="200" alt="595_Sem_Titulo_20260720172801" src="https://github.com/user-attachments/assets/d5bb4552-3fd6-4c5f-aab9-7c6f7fd2e6ed" />
+<img width="400" alt="lininin" src="https://github.com/user-attachments/assets/41cf0be0-3948-44de-b5d1-b73e7d114d93" />
+
 
 
 <p align="center">
